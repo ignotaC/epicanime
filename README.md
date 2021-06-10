@@ -38,6 +38,8 @@ Mushoku Tensei: Jobless Reincarnation
 
 Fate/Apocrypha ( EPIC )
 
+Future Diary - Watch it for Mineme. Rest is honestly shit and worst shit is MC
+
 No guns life season1 + season 2( simply good )
 
 WataMote it's silly but actualy nice. 
