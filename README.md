@@ -2,6 +2,8 @@ Goblin slayer - absolute number one
 
 Munou na Nana,Talentless Nana - epic
 
+Samurai Champloo - great anime, a must watch.
+
 Now and Then, Here and There - This is kind of hard to watch. Disheartening, still master piece.
 
 Tower of God - Worth watching. Pecuilar world
@@ -40,6 +42,8 @@ Fate/Apocrypha ( EPIC )
 
 Future Diary - Watch it for Mineme. Rest is honestly shit and worst shit is MC
 
+Combatants will be dispatched - stupid as hell but somehow worth it.
+
 No guns life season1 + season 2( simply good )
 
 WataMote it's silly but actualy nice. 
@@ -51,6 +55,8 @@ Houseki no Kuni - interesting anime
 Danganronpa ( only first season rest can be ignored )
 
 Vampire Bloodlust second part especialy tho first one is not so bad
+
+Happy Sugar Life - i think it's worth to watch it. Could be better show but still original. Messed up also - very much. 
 
 Ninja scroll + serises
 
