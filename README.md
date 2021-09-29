@@ -10,6 +10,8 @@ Tower of God - Worth watching. Pecuilar world
 
 MY-HIME - don't look back - watch it.
 
+Idaten Deities Know Only Peace - very interesrting anime
+
 Sunday Without God - masterpiece. Original.
 
 Shadow Star Narutarua - it starts very peaceful but with each  episode it becomes abysmal. It's monstrous, shattering. 
