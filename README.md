@@ -1,8 +1,14 @@
+Princess Tutu - it deservs to be placed as number one. Balet is just a background. This is gem among gems.
+
 Goblin slayer - absolute number one
 
 Munou na Nana,Talentless Nana - epic
 
 Samurai Champloo - great anime, a must watch.
+
+Ranking of kings - superb
+
+No guns no life - alll seasons good, ncie plot
 
 Now and Then, Here and There - This is kind of hard to watch. Disheartening, still master piece.
 
@@ -18,6 +24,8 @@ Shadow Star Narutarua - it starts very peaceful but with each  episode it become
 
 Get_Backers - a must watch. First episode is lame but than shit starts. ;-)
 
+Meruko-chan - original.
+
 Gleipnir - Also good anime. Original in some ways.
 
 welcome-to-the-nhk  - Now this starts funny but actualy is quite severe at times. This is one of better anime I saw out there. This is about how one person influented other so much that nearly broth him to sucuide and destoryed his life.
@@ -28,13 +36,15 @@ Dororo - NEW version 2019,  old is just too old.
 
 Ghost Hound - quite a mystery. You don't get all answers.
 
-SNAFU romantic comedy - two seasons - worth watching, this show also answers why harem is always shit. Obvious ofc. 
+SNAFU romantic comedy - three seasons - worth watching, this show also answers why harem is always shit. Obvious ofc. 
 
 The "Hentai" Prince and the Stony Cat. - nice
 
 Is this A Zombie? -- All seasons/ova. It is actualy original in some ways. Lots of lame thing too tbh.
 
 Akudama Drive - very rare anime starts as shit, than it's acceptable but at the end you find it very decent.
+
+Sakugan - somehow nice.
 
 Classroom of the Elite ( the hero is interesting )
 
