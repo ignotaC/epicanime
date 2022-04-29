@@ -24,7 +24,12 @@ Shadow Star Narutarua - it starts very peaceful but with each  episode it become
 
 Get_Backers - a must watch. First episode is lame but than shit starts. ;-)
 
-Meruko-chan - original.
+Rust-Eater Bisco - It was original but rushed.
+
+Peach Boy Riverside - not great but with kind of potential
+picked my intrest
+
+Mieruko-chan - original.
 
 Gleipnir - Also good anime. Original in some ways.
 
@@ -147,6 +152,8 @@ Bahamut ( both seasons )
 Little Witch Academia about akko. ( everything tho the longer series matters )
 
 Slayers ( whole series )
+
+Infinite Ryvius - This was one of best anime I watched. It was a huge discovery in 2022. God speed!
 
 Berserk( 1997-1998 25 episodes -- extreamly great anime but beware all other shows based on berserk manga are total shit ) 
 
