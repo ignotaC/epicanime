@@ -63,6 +63,8 @@ Combatants will be dispatched - stupid as hell but somehow worth it.
 
 No guns life season1 + season 2( simply good )
 
+The Demon Girl Next Door Season 1 and 2 - this is extreamly good anime
+
 WataMote it's silly but actualy nice. 
 
 Princess resurection - series special and OVA ( people critic but it's very nice comic anime, gem )
@@ -154,6 +156,7 @@ Little Witch Academia about akko. ( everything tho the longer series matters )
 Slayers ( whole series )
 
 Infinite Ryvius - This was one of best anime I watched. It was a huge discovery in 2022. God speed!
+Also to be honest there was a TINY scratch on the end. Someone who murdered innocent person - should not just be invited back with opened hand. But yeah they did not know. Still messed up!
 
 Berserk( 1997-1998 25 episodes -- extreamly great anime but beware all other shows based on berserk manga are total shit ) 
 
