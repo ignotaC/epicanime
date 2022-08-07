@@ -55,11 +55,19 @@ Classroom of the Elite ( the hero is interesting )
 
 Mushoku Tensei: Jobless Reincarnation
 
+Don’t Hurt Me, My Healer! - DIFFERENT
+
 Fate/Apocrypha ( EPIC )
 
 Future Diary - Watch it for Mineme. Rest is honestly shit and worst shit is MC
 
 Combatants will be dispatched - stupid as hell but somehow worth it.
+
+The World God Only Knows - Everything. There are three seasons unfortunatly seems it will end unfinished.
+Anime ends at manga chapther 190. You need to watch everythign with ovas since it's all connected.
+Just use soem site like anime planet - and watch in releas order.
+
+Trapped in dating sim - verygood.
 
 No guns life season1 + season 2( simply good )
 
