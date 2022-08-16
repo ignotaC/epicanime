@@ -65,7 +65,10 @@ Combatants will be dispatched - stupid as hell but somehow worth it.
 
 The World God Only Knows - Everything. There are three seasons unfortunatly seems it will end unfinished.
 Anime ends at manga chapther 190. You need to watch everythign with ovas since it's all connected.
-Just use soem site like anime planet - and watch in releas order.
+Just use soem site like anime planet - and watch in release order.
+
+My Mental Choices are Completely Interfering with my School Romantic Comedy
+This is so damn stupid but funny.
 
 Trapped in dating sim - verygood.
 
