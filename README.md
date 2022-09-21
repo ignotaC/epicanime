@@ -20,7 +20,12 @@ Idaten Deities Know Only Peace - very interesrting anime
 
 Sunday Without God - masterpiece. Original.
 
-Shadow Star Narutarua - it starts very peaceful but with each  episode it becomes abysmal. It's monstrous, shattering. 
+Shadow Star Narutarua - it starts very peaceful but with each  episode it becomes abysmal. It's monstrous, shattering.
+I can honestly tell you this is not finished and never was. Won't spoil but I saw manga - just so you know... the ending.
+The ending is complete shit. But the anime with so many mysteries and unknown things makes up thanks to it.
+You will have many questions and trust me you don't need to know. The second part of the manga that is not
+in anime is very poorly made. Like the author lost at some point idea how the plot should go. So in the end
+what we want is this unfinished half of manga adaptaion that makes up as great anime. Hope is will stay unfinished.
 
 Get_Backers - a must watch. First episode is lame but than shit starts. ;-)
 
@@ -51,7 +56,7 @@ Akudama Drive - very rare anime starts as shit, than it's acceptable but at the 
 
 Sakugan - somehow nice.
 
-Classroom of the Elite ( the hero is interesting )
+Classroom of the Elite - Both seasons, very nice watch.
 
 Mushoku Tensei: Jobless Reincarnation
 
