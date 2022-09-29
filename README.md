@@ -16,6 +16,9 @@ Tower of God - Worth watching. Pecuilar world
 
 MY-HIME - don't look back - watch it.
 
+Call of the night - quite interesting. A young man meets people living the night life due to illness  - being unable to sleep..
+All seems like a fantasy life full of advantures at first untill dark secrets come out.
+
 Idaten Deities Know Only Peace - very interesrting anime
 
 Sunday Without God - masterpiece. Original.
