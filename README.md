@@ -2,8 +2,10 @@ Princess Tutu - it deservs to be placed as number one. Balet is just a backgroun
 
 Phantom: Requiem for the Phantom - oh my God - great romance. 
 At the end it is important - it's not a big spoil. The reji never made it.
-And the flowers are poison. Notice missing part of flower at the very end.
-Very dramatic film. But the love is there. The affection really hit me.
+And the flower that has missing part at the end - it is yargui.
+A sweet mongolian flower that is used in medicine and exist on stepp.
+She did not sucuide as some peopel suggest.
+It's harsh ending but happy one. 
 
 Goblin slayer - absolute number one
 
