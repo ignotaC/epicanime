@@ -1,5 +1,10 @@
 Princess Tutu - it deservs to be placed as number one. Balet is just a background. This is gem among gems.
 
+Phantom: Requiem for the Phantom - oh my God - great romance. 
+At the end it is important - it's not a big spoil. The reji never made it.
+And the flowers are poison. Notice missing part of flower at the very end.
+Very dramatic film. But the love is there. The affection really hit me.
+
 Goblin slayer - absolute number one
 
 Munou na Nana,Talentless Nana - epic
@@ -19,6 +24,8 @@ MY-HIME - don't look back - watch it.
 Call of the night - quite interesting. A young man meets people living the night life due to illness  - being unable to sleep..
 All seems like a fantasy life full of advantures at first untill dark secrets come out.
 
+Summer time rendering - worth watching, complete and very good. Uniq.
+
 Idaten Deities Know Only Peace - very interesrting anime
 
 Sunday Without God - masterpiece. Original.
@@ -31,6 +38,9 @@ in anime is very poorly made. Like the author lost at some point idea how the pl
 what we want is this unfinished half of manga adaptaion that makes up as great anime. Hope is will stay unfinished.
 
 Get_Backers - a must watch. First episode is lame but than shit starts. ;-)
+
+Immoral guild - well it's kind of sick but somehow cought my attention.
+Still some stuff could have been avoided.
 
 Rust-Eater Bisco - It was original but rushed.
 
@@ -125,8 +135,8 @@ Ryo Saeba - everything, all seasons. but not the heart
 
 Natsume Yuujinchou ( there are 5 seasons for now so lets say everything is good )
 
-Mob Psycho all series. Very nice anime. Only first episode seazon 1 is lame.
-but rest is gem. 
+Mob Psycho all series. Very nice anime. Only first episode of seazon 1 is lame.
+but rest is gem.  at the moment we have 3 seasons and all are VERY good.
 
 The Weathering Continent - 1h movie, nice story. 
 
@@ -154,12 +164,16 @@ no. 6 - Definatly worth watching
 
 Martian Successor Nadesico ( the film can be watched also but the real gem is the series )
 
+Little lies we all tell
+
+In the heart of Tsubaki Kunochi.
+
 Full Metal Alchemist( there are two animes one is *manga strict and is total crap, where at starting episodes *god* shows up as some being that jokes, extreamly lame shit. But real gem is the one that is not so strictly based on manga. Totally must a watch. )
 
 Orphen ( both seasons ) - the OLD version from 90's -> NOT THE remastered.
 
 Kono Subarashii / konosuba with aqua godess ( all seasons )
-also OVA and movie
+also two OVA and movie
 
 Hinamatsuri - funny it was. 
 
