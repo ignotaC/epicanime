@@ -8,15 +8,15 @@ She did not sucuide as some peopel suggest,
 there is confiusion with other flowe.
 It's harsh ending but happy one. 
 
-Goblin slayer - absolute number one
+Frieren: Beyond Journey’s End - very good anime, absolute must watch
+
+Goblin slayer - absolute gem but only first season movieand second are ok but they are not that good.
 
 Munou na Nana,Talentless Nana - epic
 
 Samurai Champloo - great anime, a must watch.
 
-Ranking of kings - superb
-
-No guns no life - alll seasons good, ncie plot
+Ranking of kings - original
 
 Now and Then, Here and There - This is kind of hard to watch. Disheartening, still master piece.
 
@@ -39,6 +39,10 @@ The ending is complete shit. But the anime with so many mysteries and unknown th
 You will have many questions and trust me you don't need to know. The second part of the manga that is not
 in anime is very poorly made. Like the author lost at some point idea how the plot should go. So in the end
 what we want is this unfinished half of manga adaptaion that makes up as great anime. Hope is will stay unfinished.
+
+Ragna Crismon - it's good
+
+The Weakest Tamer Began a Journey to Pick Up Trash - This is very good anime
 
 Get_Backers - a must watch. First episode is lame but than shit starts. ;-)
 
@@ -143,7 +147,7 @@ but rest is gem.  at the moment we have 3 seasons and all are VERY good.
 
 The Weathering Continent - 1h movie, nice story. 
 
-Another - this is very good.
+Another - this is very good. VERY GOOD.
 
 brynhildr in the darkness
 
@@ -176,7 +180,7 @@ Full Metal Alchemist( there are two animes one is *manga strict and is total cra
 Orphen ( both seasons ) - the OLD version from 90's -> NOT THE remastered.
 
 Kono Subarashii / konosuba with aqua godess ( all seasons )
-also two OVA and movie
+also two OVA and movie Now we also have  season of backstory of the crismon mages.
 
 Hinamatsuri - funny it was. 
 
@@ -218,7 +222,7 @@ Darker than Black ( all episodes )
 
 Mononoke Princess
 
-I'm standing on 1,000,000 lives - Very good anime. 
+I'm standing on 1,000,000 lives - Very good anime.  Both seasons
 
 Ergo Proxy
 
@@ -237,5 +241,6 @@ Rune Soldier
 Kiseijuu: Sei no Kakuritsu( worth watching )
 
 Tegami Bachi ( both seasons - it's not finished. But it is rare, original ).
+It mightn not be clear from the anime but the artificial sun is a horrific thing that demands sacrefice.
 
 Dagashi Kashi ( all seasons - very nice anime ).
