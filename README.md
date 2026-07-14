@@ -54,6 +54,8 @@ Rust-Eater Bisco - It was original but rushed.
 Peach Boy Riverside - not great but with kind of potential
 picked my intrest
 
+Kaiba - oryginal depressing world
+
 Mieruko-chan - original.
 
 Gleipnir - Also good anime. Original in some ways.
@@ -76,13 +78,15 @@ Akudama Drive - very rare anime starts as shit, than it's acceptable but at the 
 
 Sakugan - somehow nice.
 
-Classroom of the Elite - Both seasons, very nice watch.
+Classroom of the Elite - All thee  seasons, very nice watch.
 
 Mushoku Tensei: Jobless Reincarnation
 
 Don’t Hurt Me, My Healer! - DIFFERENT
 
 Fate/Apocrypha ( EPIC )
+
+No longer allowed to another world
 
 Future Diary - Watch it for Mineme. Rest is honestly shit and worst shit is MC
 
@@ -97,11 +101,15 @@ This is so damn stupid but funny.
 
 Trapped in dating sim - verygood.
 
+Gnosia - original
+
 No guns life season1 + season 2( simply good )
 
 The Demon Girl Next Door Season 1 and 2 - this is extreamly good anime
 
 WataMote it's silly but actualy nice. 
+
+The Stunned Hero and the Assassin Princesses - a bit unusuall
 
 Princess resurection - series special and OVA ( people critic but it's very nice comic anime, gem )
 
@@ -131,7 +139,7 @@ ONE great series:
 6. Tsukimonogatari
 7. Owarimonogatari (part 1)
 8. Koyomimonogatari
-9. Kizumonogatari
+9. Kizumonogatari (movies )
 10. Owarimonogatari (part 2)
 11. Zoku Owarimonogatari
 
@@ -145,6 +153,8 @@ Natsume Yuujinchou ( there are 5 seasons for now so lets say everything is good 
 Mob Psycho all series. Very nice anime. Only first episode of seazon 1 is lame.
 but rest is gem.  at the moment we have 3 seasons and all are VERY good.
 
+Bogus Skill - Fruitmaster  Somehow I liked it.
+
 The Weathering Continent - 1h movie, nice story. 
 
 Another - this is very good. VERY GOOD.
@@ -153,9 +163,13 @@ brynhildr in the darkness
 
 PlanetEs ( impressive anime )
 
+Witch Hat Ateriler - Very good anime
+
 Dorei-ku The Animation ( it was really good )
 
 Cowboy Bebop (film + series)
+
+Clevatess - worth watching
 
 Lunar Legend Tsukihime( It was very nice anime ).
 
@@ -208,6 +222,8 @@ Ruin Explorers
 
 Claymore
 
+The Unwanted Undead Adventurer - starts bad but gets better
+
 Dimension W series + special 1 ep ( nice anime )
 
 WorldEnd: What do you do at the end of the world? Are you busy? Will you save us? - ( original to some point, tho ctholy romance is a bit too fast imho ).
@@ -220,15 +236,21 @@ King of thorn Ibara no Oh ( need to be  watched very carefuly to understand
 
 Darker than Black ( all episodes )
 
+Dorohedoro - the two seasons are very good but the real plot starts at end of second season.
+
 Mononoke Princess
 
 I'm standing on 1,000,000 lives - Very good anime.  Both seasons
 
 Ergo Proxy
 
+Sentanced to be a hero - This is very good 
+
 Golden Time - the romance is there.
 
 Love, Chunibyo & Other Delusions! ( Very nice romanse, both seasons good )
+
+One punch man - all series v. good
 
 Wolf's Rain ( a bit specific )
 
@@ -237,6 +259,9 @@ Shikabane Hime (2 seasons, it is *different* )
 Vampire Princess Miyu - it had some worth watching moments
 
 Rune Soldier
+
+Hazurewaku no "Joutai Ijou Skill" de Saikyou ni Natta Ore ga Subete wo Juurin suru made - nice watch, sometimes lame but still good time
+
 
 Kiseijuu: Sei no Kakuritsu( worth watching )
 
